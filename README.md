@@ -16,6 +16,6 @@ Features:
 
 Image Credit: https://pixabay.com/photos/cube-six-gambling-play-lucky-dice-689618/
 
-Watch Video on Youtube:https://youtu.be/KLBTOZ10rl0
+Watch Video on Youtube:https://www.youtube.com/watch?v=snhD-igw-Yw
 
 Get it on Google Play(v1.0):https://play.google.com/store/apps/details?id=com.tinkererway.diceway
